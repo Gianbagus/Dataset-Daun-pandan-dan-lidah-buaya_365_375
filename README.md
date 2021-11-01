@@ -17,3 +17,21 @@
   
 # Manfaat
 - Daun Pandan
+    1. Mengobati nyeri sendi
+    2. Mengontrol gula darah
+    3. Darah tinggi
+    4. Menghilangkan ketombe
+    5. Mengobati diare
+    6. Insomnia
+
+- Daun Lidah Buaya
+    1. Mencegah tanda penuaan
+    2. Penyembuh luka
+    3. Efektif melembabkan kulit
+    4. Menenangkan dan menghidrasi kulit
+    5. Mengurangi stretch mark
+    6. Mengurangi inflamasi atau peradangan
+    7. Mengurangi ketombe
+    8. Media detokfikasi alami 
+
+
